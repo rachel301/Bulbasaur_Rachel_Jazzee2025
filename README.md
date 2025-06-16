@@ -1,2 +1,2 @@
-Bulbasaur_Rachel_Jazzee2025_PitchVideo
+Bulbasaur_RachelRoshni_Jazzee2025_PitchVideo
 https://youtu.be/1o7I0kJxKLc
